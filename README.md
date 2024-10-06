@@ -4,3 +4,4 @@ narrative of sampled words/sentences/images/moments
 nonlocality
 materiality
 condensed matter
+new materialism
